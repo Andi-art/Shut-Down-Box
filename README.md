@@ -1,2 +1,2 @@
 Shut-Down-Box
-Play it for free
+Open the file to see the code
